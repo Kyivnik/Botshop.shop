@@ -197,3 +197,4 @@
 1. ВК: https://vk.com/nosemka
 2. Дискорд: semmy#0068
 # Kyivnik.shop
+# Kyivnik.shop
